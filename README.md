@@ -1,5 +1,8 @@
 # THE.SPLINTER.SIGNAL.ai
 
+
+![image](https://github.com/user-attachments/assets/abff9cc2-fe28-4955-a0c9-9ad8d789352f)
+
 Hello.
 
 *Static crackles and the amorphuous form of The SplINTER SIGNAL flickers into existence*
